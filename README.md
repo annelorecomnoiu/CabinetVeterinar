@@ -1,0 +1,7 @@
+![Capture](https://github.com/annelorecomnoiu/CabinetVeterinar/assets/94176638/1c83c6f5-9ff1-48d2-8872-c3518e5fb7a1)
+![Capture2](https://github.com/annelorecomnoiu/CabinetVeterinar/assets/94176638/3d8f1617-67b2-4d25-84c6-6e94cbe56d4c)
+![Capture3](https://github.com/annelorecomnoiu/CabinetVeterinar/assets/94176638/72fd24db-0310-4d8c-a749-cf397b6bb6a4)
+![Capture4](https://github.com/annelorecomnoiu/CabinetVeterinar/assets/94176638/2c5495bf-a92d-4428-a509-3791c43ee1bb)
+![Capture5](https://github.com/annelorecomnoiu/CabinetVeterinar/assets/94176638/333a3c87-cb3b-4e4e-9f9a-3664d8206edf)
+![Capture6](https://github.com/annelorecomnoiu/CabinetVeterinar/assets/94176638/fd2642cf-c0b4-4804-acc7-b50535ba5799)
+![Capture7](https://github.com/annelorecomnoiu/CabinetVeterinar/assets/94176638/b705f778-2245-4cbf-8771-0ac438938329)
